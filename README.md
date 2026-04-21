@@ -1,4 +1,4 @@
-# KingDavid Oluwaseun Oyedemi
+# KingDavid Oyedemi
 
 **IT Infrastructure and Cybersecurity Engineer** | Lagos, Nigeria
 
